@@ -7,3 +7,5 @@ https://lnkd.in/gM393zW6 - This one was built from my Playwright Template which 
 
 Always stay learning and always push through the challenges- A master knows himself to always be a student.
 A wiseman knows himself to be a fool and a fool thinks himself a wiseman.
+
+link- https://lnkd.in/p/gDgUNJXa
